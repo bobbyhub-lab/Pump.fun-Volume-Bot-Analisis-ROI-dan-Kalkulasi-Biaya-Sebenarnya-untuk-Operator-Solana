@@ -1,0 +1,1 @@
+# Pump.fun-Volume-Bot-Analisis-ROI-dan-Kalkulasi-Biaya-Sebenarnya-untuk-Operator-Solana
